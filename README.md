@@ -60,9 +60,3 @@
 
 
 
-给Aigu赞赏
------------------
-<img src="https://github.com/chi8708/NBCZ/blob/master/zs.jpg" />
-
-
-
